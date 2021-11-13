@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lovergil2
+- Hi, I’m @lovergil2
 - 
 -
 
